@@ -27,4 +27,4 @@ This project is licensed under the MIT License. Please review the LICENSE file f
 
 📧 Email: safycosting@gmail.com
 
-🌐 LinkedIn: Sabiullah Noor Mohamed's LinkedIn
+🌐 LinkedIn: [Sabiullah Noor Mohamed's LinkedIn](https://www.linkedin.com/in/sabiullah-noor-mohamed-83507386/)https://www.linkedin.com/in/sabiullah-noor-mohamed-83507386/
